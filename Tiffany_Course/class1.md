@@ -172,7 +172,12 @@ many times i run and stand before the gate of horror room ,i cant throw my in th
 
 从老师视角看，这种组合其实非常适合把英语练到“讲故事很有味道”的层次——因为你既有内容，又有自我观察，只差一层更稳定的表达结构。恐惧这种话题，本身就是训练“情绪 + 画面”的好材料，完全可以继续用它当你的口语实验场。
 
-
+Ans:
+I’m afraid of watching horror movies .
+There’s no scientific or logical explanation for what happens in horror movies.
+The scenes and sounds in horror movies really scare me.
+I’m not brave enough to watch horror movies alone.
+I try to go into haunted houses, but I always end up standing at the gate, too scared to walk in.
 
 ## Appendix
 
